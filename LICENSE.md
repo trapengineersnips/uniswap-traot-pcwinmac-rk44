@@ -1,4 +1,4 @@
-# 
+# VIP uniswap trading bot presets for Mac OS | Advanced uniswap trading bot presets for PC Windows. Featuring order book analysis and Web3 connectivity — optimized for maximum performance on every platform.
 
 
 
